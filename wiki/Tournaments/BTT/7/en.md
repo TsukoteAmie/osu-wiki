@@ -6,7 +6,7 @@ tags:
 
 # Beginners' Taiko Tournament Season 7
 
-![BTT7 logo](img/logo.jpg)
+![BTT7 logo](img/logo.png)
 
 The **Beginners' Taiko Tournament Season 7** (***BTT7***) was a worldwide double-elimination 1v1 osu!taiko tournament hosted by ::{ flag=NL }:: [TaikoMom](https://osu.ppy.sh/users/9086438). Only players ranked #10,000 and above can participate. It was the seventh instalment of the Beginners' Taiko Tournament.
 
@@ -68,7 +68,7 @@ The Beginners' Taiko Tournament Season 6 was run by various community members.
 
 ## Podium
 
-![](img/podium.jpg "BTT7 podium")
+![](img/podium.png "BTT7 podium")
 
 ## Mappools
 
