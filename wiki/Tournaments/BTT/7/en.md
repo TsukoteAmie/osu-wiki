@@ -99,3 +99,144 @@ The Beginners' Taiko Tournament Season 6 was run by various community members.
   1. [Domyouji Cocoa - Horizon (Cut Ver.) (YonGin) \[Oni\]](https://osu.ppy.sh/b/3666497)
 - Tiebreaker
   1. [Sythion - Quantum (YonGin) \[Convoluted Creation\]](https://osu.ppy.sh/b/3666512)
+
+### Finals
+
+**[Download the mappack here! (95 MB)](https://mega.nz/file/jVRnRIhb#VteU4Oa9Qraig8USMu7P2JBifXIhK6KGzJDY3da1oEo)**
+
+- NoMod
+  1. [Stack - KARMANATIONS (TaikoMom) \[ONINATIONS\]](https://osu.ppy.sh/b/3654451)
+  2. [Toorun - Time Machine (nyanmi-1828) [Oni]](https://osu.ppy.sh/b/1719096)
+  3. [NIWASHI - T_ritama Breaker (Irone OSU) [Muzukashii]](https://osu.ppy.sh/b/3335906)
+  4. [Lite Show Magic - TRICKL4SH 220 (LilacCos) \[Aspire\]](https://osu.ppy.sh/b/3654397)
+  5. [galen tipton - MX2U (7_7) [Oni]](https://osu.ppy.sh/b/3188146)
+  6. [UKRampage - Jack-the-Ripper (DeviousPanda) \[Capu's Muzukashii\]](https://osu.ppy.sh/b/3339540)
+- Hidden
+  1. [owl * tree feat. yaki * tree - Sqlupp (YonGin) [Muzukashii]](https://osu.ppy.sh/b/3023268)
+  2. [the wandering bard feat. Shikata Akiko - Catastrophic Dance (Taka030) \[sing's Muzukashii\]](https://osu.ppy.sh/b/1971608)
+  3. [Polcka - Tiny Fate (fanhoho) [Muzukashii]](https://osu.ppy.sh/b/3107291)
+- HardRock
+  1. [Leo/need - Stella (thomas1195) [Muzukashii]](https://osu.ppy.sh/b/3654435)
+  2. [Se-U-Ra - LOSHAXI -HACK- (Genjuro) [Muzukashii]](https://osu.ppy.sh/b/2288245)
+  3. [Nightmare - Dream to Nightmare (Kqrth) [DREAM's Muzukashii]](https://osu.ppy.sh/b/1916321)
+- DoubleTime
+  1. [TWICE - The Feels (Lexa14) \[clockbite's Muzukashii\]](https://osu.ppy.sh/b/3415050)
+  2. [ClariS - Surely (JUDYDANNY) \[m1ng's Muzukashii\]](https://osu.ppy.sh/b/414464)
+  3. [underscores - Where did you fall (Ulqui) [Muzukashii]](https://osu.ppy.sh/b/3557916)
+- Hidden HardRock
+  1. [Venetian Snares - Szamar Madar (Xay) [Muzukashii]](https://osu.ppy.sh/b/1454576)
+- Tiebreaker
+  1. [Aether Realm Feat. Christopher Bowes - King Of Cups (TaikoMom) \[Mom's Mystic Mapping\]](https://osu.ppy.sh/b/3654488)
+ 
+### Semifinals
+
+**[Download the mappack here! (74 MB)](https://mega.nz/file/KVYAAKSL#3Ncg4PTPvP04m0Pmm2mP3dYr_3KxBUCht4nwcY0vr5w)**
+
+- NoMod
+  1. [Kankaku Piero - Toushindai Unbalance (YonGin) \[Beyond Muzukashii\]](https://osu.ppy.sh/b/3644089)
+  2. [Go_A - SHUM (TaikoMom) [Muzukashii]](https://osu.ppy.sh/b/3644090)
+  3. [MASAKI(ZUNTATA) - Touhou Kijinretsu (JUDYDANNY) [Muzukashii]](https://osu.ppy.sh/b/2033478)
+  4. [MYUKKE. - Liturn to the Days (BabySnakes) \[Taiko\]](https://osu.ppy.sh/b/3644265)
+  5. [LindaAI-CUE - Soroban2000 (BabySnakes) \[Oni (BTT\]](https://osu.ppy.sh/b/3644279)
+- Hidden
+  1. [ONE OK ROCK - One by One (SKSalt) [Muzukashii]](https://osu.ppy.sh/b/663925)
+  2. [Killerblood - Theme of Kingdom No. 8 (thomas1195) [No.8-bit]](https://osu.ppy.sh/b/3644075)
+  3. [ZUN - Old Distant Hermit (Gu Yuan Xian) (TaikoMom) [Demonify "Zouhuo Rumo"]](https://osu.ppy.sh/b/3644086)
+- HardRock
+  1. [DJ Noriken & aran - Comet Coaster (Issuko) [KyeX's Muzukashii]](https://osu.ppy.sh/b/3393525)
+  2. [pm04034 - Onis Keyboard (gaston_2199) \[muzukashii\]](https://osu.ppy.sh/b/2537920)
+  3. [NIWASHI - Y (sendol) \[M\]](https://osu.ppy.sh/b/3473021)
+- DoubleTime
+  1. [LukHash - ROOM 12 (\[R\]) [Muzukashii]](https://osu.ppy.sh/b/2022847)
+  2. [BPM15Q - Kataomoiwazurai (kanpakyin) [Futsuu]](https://osu.ppy.sh/b/3561773)
+  3. [2ToneDisco x Cosmicosmo - Shoelaces (feat. Puniden) (Jaltzu) [Muzukashii]](https://osu.ppy.sh/b/2968679)
+- Tiebreaker
+  1. [Yuyoyuppe feat. Kadochi - Morning Glow (Cynplytholowazy) \[Remembrance\]](https://osu.ppy.sh/b/3644477)
+ 
+### Quarterfinals
+
+**[Download the mappack here! (55 MB)](https://mega.nz/file/WdoxHJpS#bA73AEft-UgKxCpWcJJDdrvGLV5o4kCSvO1ayhMmNiI)**
+
+- NoMod
+  1. [Kurousa-P - Senbonzakura (Camellia Remix) (_Rise) [yassu-'s Muzukashii]](https://osu.ppy.sh/b/1087612)
+  2. [Nor - SAKURA PUNCH (thomas1195) \[Muzukashii+\]](https://osu.ppy.sh/b/3632971)
+  3. [EBIMAYO - GOODRAGE [-xNaCLx-] [Muzukashii]](https://osu.ppy.sh/b/2404849)
+  4. [ISOMERZ (DJ Raisei + seatrus) - Symmetric (sendol) [Muzukashii]](https://osu.ppy.sh/b/3298606)
+- Hidden
+  1. [Harada Hitomi - Overdrive (Cut Ver.) (Joltzzz) [Muzukashii]](https://osu.ppy.sh/b/3500384)
+  2. [Morimori Atsushi - Alter Ego (Cynplytholowazy) [Muzukashii]](https://osu.ppy.sh/b/2795431)
+  3. [Culprate - Yellow (A Second Glimpse) (Ulqui) [Muzukashii]](https://osu.ppy.sh/b/1261677)
+- HardRock
+  1. [Kotobuki Minako - Million Litmus (yuki_momoiro722) [Muzukashii]](https://osu.ppy.sh/b/3506780)
+  2. [Kobaryo - Lotus Quest (ILOVEMARISA) [Muzukashii]](https://osu.ppy.sh/b/2244050)
+  3. [Ayatsugu_Otowa - Chouetsu Shite Shimatta Kanojo to Sore o Umi Otoshita Riyuu (-[ Dumpling ]-) \[Senritsu's Muzukashii\]](https://osu.ppy.sh/b/975942)
+- DoubleTime
+  1. [Rin - Kurikaeshi Hitotsubu (Charlotte) \[Nardo's Muzukashii\]](https://osu.ppy.sh/b/1028285)
+  2. [KaratoPanchiiShounen feat. Haruno - A Wandering Melody of Love (davindminh0111) [Futsuu]](https://osu.ppy.sh/b/2822716)
+- Tiebreaker
+  1. [ILLENIUM - Shivering ft. Spiritbox (Cookie_Tree) [A Frozen Memory]](https://osu.ppy.sh/b/3633054)
+ 
+### Round of 16
+
+**[Download the mappack here! (72 MB)](https://mega.nz/file/DRYSwBgS#_y58lmdSK8mek9qCDgyv2uh3mw-pZpPUTapF0Og6ZCc)**
+
+- NoMod
+  1. [Machico - Cheers! Delicious PartyPretty Cure (thomas1195) \[Cure-Consistent\]](https://osu.ppy.sh/b/3621770)
+  2. [DE DE MOUSE - Silly Love (-jordan-) [Muzukashii]](https://osu.ppy.sh/b/3184525)
+  3. [t+pazolite - OMAKENO Stroke (JUDYDANNY) [Muzukashii]](https://osu.ppy.sh/b/815993)
+  4. [factal - Flux (Megafan) \[Thaw Creation\]](https://osu.ppy.sh/b/2763087)
+- Hidden
+  1. [garlagan - PPaper PPlanes (Phob) [Muzukashii]](https://osu.ppy.sh/b/2851393)
+  2. [Neichel - Welcome to the New World! (Demo Version) (thomas1195) [Futsuu]](https://osu.ppy.sh/b/3621804)
+  3. [Nekomata Master - Izanami no nageki (HiroK) \[Kqrth's Futsuu\]](https://osu.ppy.sh/b/1766039)
+- HardRock
+  1. [LiLA'c Records - Jue (eiri-) [Muzukashii]](https://osu.ppy.sh/b/1677432)
+  2. [Zekk - Duplication (skolodojko) [Futsuu]](https://osu.ppy.sh/b/3014398)
+  3. [DIVELA feat. Kiritani Komugi - VANTABLACK RAVER (KappuChinooo) [Futsuu]](https://osu.ppy.sh/b/2958741)
+- DoubleTime
+  1. [JONGHYUN - She is (Hitsu) \[Common\]](https://osu.ppy.sh/b/1486870)
+  2. [M2U - Felis (davidminh0111) \[Emre's Futsuu\]](https://osu.ppy.sh/b/2780339)
+- Tiebreaker
+  1. [RONDO - Journey through the Decade (YonGin) [Muzukashii]](https://osu.ppy.sh/b/3621920)
+ 
+### Round of 32
+
+**[Download the mappack here! (51 MB)](https://mega.nz/file/3F4jEAwB#laEvZy3RSUf9XNvYJPFPKpBZQQ5vu2QJp8lpXSzEItI)**
+
+- NoMod
+  1. [Mili - Summoning 101 (LilacCos) \[Lyrr viva tou conquieta Aeterrn amora\]](https://osu.ppy.sh/b/3612326)
+  2. [II-L - SPUTNIK-3 (Horiiizon) \[FUTSUU\]](https://osu.ppy.sh/b/3263127)
+  3. [MisoilePunch ~pan soe~ - MeTear'n TruX (iloveyou4ever) [Futsuu]](https://osu.ppy.sh/b/3582745)
+  4. [Sakuzyo - Lie (komasy) [Futsuu]](https://osu.ppy.sh/b/1925908)
+- Hidden
+  1. [Daisan - -+ (Servatory) \[Tada's Futsuu\]](https://osu.ppy.sh/b/2811790)
+  2. [NICODE - Nyanya no Uta (Faputa) \[Jarvis' Futsuu\]](https://osu.ppy.sh/b/1924708)
+- HardRock
+  1. [ROKINA - MachinaRegina (Jaltzu) [Futsuu]](https://osu.ppy.sh/b/2401571)
+  2. [TRUE - Storyteller (TV Size) (kanpakyin) [Black's Futsuu]](https://osu.ppy.sh/b/3293279)
+- DoubleTime
+  1. [F.I.R. - Yu Ying Hua (Muziyami) [Futsuu]](https://osu.ppy.sh/b/3161608)
+  2. [DAOKO - Daisuki with TeddyLoid (Nifty) [Futsuu]](https://osu.ppy.sh/b/1495769)
+- Tiebreaker
+  1. [Makai Toshi Niigata - Ukiyo-e Yokochou (D o t) [Muzukashii]](https://osu.ppy.sh/b/1578324)
+
+### Round of 64
+
+**[Download the mappack here! (58 MB)](https://mega.nz/file/KRRFlYJS#0uT-srtc6dGDkUwskXKHAG0VtFCIWR_kxa72AiJceWo)**
+
+- NoMod
+  1. [Ado - USSEEWA (Faputa) \[BLACK'S FUTSUU\]](https://osu.ppy.sh/b/2954797)
+  2. [Akhuta - Ludus In Tenebris (Nyan) [Futsuu]](https://osu.ppy.sh/b/964449)
+  3. [The Dreadnoughts - Goblin Humppa (TaikoMom) [Futsuu]](https://osu.ppy.sh/b/3603392)
+  4. [Hideki Naganuma - Like It Like This Like That (BabySnakes) [Futsuu]](https://osu.ppy.sh/b/3603652)
+- Hidden
+  1. [An - Tephereth (SKSalt) [Futsuu]](https://osu.ppy.sh/b/831001)
+  2. [loos feat. Hiiragi Rian - Omoiyoshino (Konpaku Sariel) [Futsuu]](https://osu.ppy.sh/b/2106493)
+- HardRock
+  1. [Nekomata Master - Deadman Falling (Azer) [Futsuu]](https://osu.ppy.sh/b/1523530)
+  2. [Roselia - ONENESS (KamizonoShinobu) \[\_Rise's Futsuu\]](https://osu.ppy.sh/b/1554233)
+- DoubleTime
+  1. [Reol - Saisaki (Faputa) [Futsuu]](https://osu.ppy.sh/b/2901631)
+  2. [K/DA - THE BADDEST feat. (G)I-DLE, Bea Miller, Wolftyla (Foxeru) \[Silver\]](https://osu.ppy.sh/b/2590306)
+- Tiebreaker
+  1. [ONE OK ROCK - The Beginning (YonGin) \[It finally begins.\]](https://osu.ppy.sh/b/3603376)
